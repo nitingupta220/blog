@@ -1,0 +1,14 @@
+---
+title: "A Mother is always there for you."
+description: "Imagine if you are a parent then think how it feels when your son or daughter going on the wrong path. Just close your eyes and think about it. No, you can’t even imagine that thing. The image of…"
+date: "2017-02-11T07:28:38.882Z"
+categories: 
+  - Addiction
+  - Drugs
+
+published: true
+canonicalLink: https://medium.com/@nitingupta220/a-mother-is-always-there-for-you-3852274ba2f2
+---
+
+Imagine if you are a parent then think how it feels when your son or daughter going on the wrong path. Just close your eyes and think about it. No, you can’t even imagine that thing. The image of that situation is very tough. But if you are then you always tries to change their thinking and wants them to change the path. If you are a father you always chose the strict way to change their thinking. You punish them, you always tries to put restrictions on them. But if you are a mother the situation could be different. A mother is someone who can never give up on the child whatever be the case. But what she will do when his or her child is taking drugs? Now this question is very tough to answer. Because none of the parents wants their child taking drugs. But question is that what they will do if they take? I think many of us have no answer for this question. But a group of mothers in Arunachal Pradesh has got an answer to this question. In Arunachal Pradesh, a small group of mothers whose children has got the addiction started an organization named WASE (Women Against Social Evils). This organization’s main motto is to stop the drug peddlers in their region. Many of the mothers in this organization is the one whose child have the drug addiction. The question is that how they stop this. Because they are only just women. No no, boss don’t underestimate the power of a common woman. Haha, but jokes apart these mothers take some serious steps against this. They sending fake customers to the drug peddlers and after that, they report to the police station about that peddler. And when some other parents realize that their child is going on the wrong way and takes drugs. They call the WASE organization and someone from the organization came and talk to the child. Drug peddlers first give drugs to the child for free and after that, when they got addicted then they will start charging money. Their targets are usually the children between the age of 12 and 21. So the main motive of WASE is to stop the drug peddlers and talk to children who is taking drugs that why they take drugs and if there is any problem they will resolve it.  
+I really appreciate this effort. They are doing great work. Because the grief of losing someone is a very bad experience. I hope they will eradicate the drug peddlers from all over the country.
